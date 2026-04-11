@@ -1,4 +1,18 @@
 # learning_bout_stuff_github
 how to use a Git and GitHub
 
-saturday class hehe
+saturday class hehe HELLLLLLLLLOOOOOOOOOOOOEOOEOEOOEOEOOEOEOOO
+HII
+WHAT
+UP
+NOTHING
+WBU
+NOTHING
+WHAT R U DOING
+NOTHING
+WBU
+NOTHING
+STOP copying ME
+I AM NOT
+YES U R
+
